@@ -1,0 +1,63 @@
+
+        <p>
+            There is a girl, Sally, who I have worked with for some time. We first met in our office, on the eleventh floor. 
+            The office is high enough up inside the building to let the sunlight in through the window behind us, in the late day it can be seen, 
+            breaking up and diffusing on the walls—that low afternoon, sleep-making light. She sits next to me, in the desk adjacent to mine, 
+            and though there is a privacy screen between our cubicles, through a thin opening, I can just make her out. 
+            It is through this opening that I look at Sally, and I steal away and keep in my thoughts her picture in profile through the opening. 
+            I can see, in my mind, the way that her lip droops down at one side in concentration. 
+            I can picture, almost unconsciously, how she drags one side of her fringe over to the other, lets it fall, then returns it with a slow shake of her head. 
+            I have developed her as one would develop photographs, I have processed these Sally-negatives until they bled clear in my mind. 
+            She rolls blue shirtsleeves up her forearms, drinks tea, taps keys. She exists, mostly like this, in images.
+        </p>
+        <p>
+            It was morning, and she had not been in yet—at least what might have remained of her profile, severed tauntingly by the thin opening in the plastic screen that separated us. 
+            I was instead tapped, teasingly, on the shoulder. She came upon me unnoticed. She was saying something to me. 
+            Sally, who was standing behind me, was saying something about a Christmas party. ‘Remember the Christmas party.’ She was mostly saying. 
+            I nodded in agreement. I remembered the time of year, the length of days, and the long, winding demise of the sun in December, theatre-sun, which drew out its death. 
+            So I supposed it was December, and yes, there was a tinsel temperament to the office, now that I noted it—redolent of crinkled mylar, of plastic shining in the sunlight. 
+            I looked up at Sally, who was wearing a ponytail, different to how I had remembered her, different to how she appeared in my images. 
+            ‘New ponytail.’ I said, and I reached upward, and I took it between my fingers as if it were a novel plant, some vegetal curio plucked from a streetside garden.
+        </p>
+        <p>
+            This act of intimacy, as yet untested between us, surprised me as it began, but it was, by then, too late for hesitation. 
+            This was pause that proved unnecessary; she rejected my gesticulation gently, with a brush of warm fingers, and batted me away so weakly as to suggest underlying acceptance, so I thought. 
+            Between my fingers I had taken her ponytail, I thought, a ponytail of piling red and white felt, rough and cheap. 
+            At the end, strangely, dangled a lone white pom-pom. She was wearing a Santa hat of throwaway office grade; she had had her hair cut short for months now, I recalled. 
+            ‘I cut my hair short months ago.’ She said, laughing. She returned to her desk and to her thin picture frame, a grey-green plastic divider frame. 
+            Another image lodged in my mind.
+        </p>
+        <p>
+            It was at the work Christmas party, which turned out to be later that evening, when I noticed Sally’s leg brush against mine, I thought, 
+            her long, stocking-enshrined leg, and I felt the friction of our fabric grains in contradiction with each other. 
+            I looked up at her, my head aswim with beer already, the day already dead. She was saying something about Christmas. 
+            ‘It just seemed to come so early this year. Though I suppose it does every year.’ She said. Her eye met mine. 
+            I looked down, down at her leg, which was not a leg but an umbrella, a black umbrella leaning against the table, brushing against my leg. 
+            The night was opened up, black and immense, dripping with stars that shone un-shy of cloud, far above the rooftop bar where we sat. 
+            Sally’s face, a tallow thing in the pub-light. I caught a glimpse, then back down again, still no stockinged leg; it was supposed to rain later, someone said.
+        </p>
+        <p>
+            In the bathroom I stood slightly listing at the urinal and looked at my distorted face in the bevelled mirror of plumbing. 
+            With the other hand, I began plastering my hair, which was now wet, to one side, Sally-conscious. I was unzipping my fly when a colleague of mine, Justin, came in. 
+            I watched him through the plumbing as he proceeded, gait marred inelegantly, the collapsing stride of an inebriate. 
+            His slurred voice further betrayed his intoxication. ‘You're not even festive, man.’ He said. 
+            He struggled to remove some felt antlers, I thought, perched askew atop his bald head. He stepped unsurely and ran his fingers through his hair. ‘Lost my antlers.’ He said. 
+            We laughed. Justin concaved and convexed in my darkling mirror and reached for my shoulder with an unstable gesture of kindliness that betrayed a condescension long harboured.
+        </p>
+        <p>
+            Later, outside the bar, as the dregs of the crowd trickled out into the city, Sally asked me for a lighter, which I did not have, proceeded to produce one from the depths of her bag, 
+            which she probed frustratedly, then offered me a cigarette, which I took and lit and smoked and I was risen slightly from my stupor. 
+            It was then that I realised the dearth of coworkers about us—that the low roar of revelry had abated. Only the spare words between us now broke the night’s silence. 
+            She asked me plainly, 'Do you want to get a taxi together?’ The quaint employ of the word taxi, in place of Uber or Didi, charmed me. 
+        </p>
+        <p>
+            In the car, Sally’s hand alighted gently upon my own, considered or not, I did not know. 
+            We arrived first at her apartment, and though Sally had made a show of asking my address, the taciturn driver, prompted by Sally’s ‘I’m sure that I added it,’ responded only with a shrug. 
+            We took to the pavement awkwardly. ‘It’s okay, I’ll just get another car,’ I said. And though I felt myself a foreign body, unwelcome in Sally-environs, nonetheless there I was, 
+            lounged on Sally’s couch, as she entwined a drink with my hand, I thought, before my lips were pressed clumsily by a soft fruit, a mandarin segment, I thought, 
+            perhaps, the juice perspiring my lips, and Sally’s breasts, I saw, soft and warm on the approach, my hands grasped at them childlike, 
+            through the cellophane veneer of her blouse, which read; made from at least 80% recycled plastic. 
+        </p>
+        <p>
+            In my kitchen, in my apartment, it was morning. I unclenched my hands and drew them away from the plastic bag. Inside there was only fruit, loose mandarins.
+        </p>
